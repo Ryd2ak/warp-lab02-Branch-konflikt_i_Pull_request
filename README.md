@@ -1,1 +1,1 @@
-Autor:Maks Rydzewski
+Autor: Maks Rydzewski
